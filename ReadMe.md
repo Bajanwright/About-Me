@@ -1,0 +1,2 @@
+Bajan Wright 
+I am Bajan, the first of my kind. I will find the right one and maybe one day I will find my father after losing him in the super market when he told me he was going to be right back because he needed to get one more thing from the aisle. I am short to everybody else but the tallest in my family, I am also black and I am lightskin.   
