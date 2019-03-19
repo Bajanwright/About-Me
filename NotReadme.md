@@ -1,0 +1,2 @@
+Bryan Goat,
+I am Bryan Goat, I am white and I live on a farm and one day I will work for the president and the Whitehouse as an Assassin. Im from Texas and I am dirty and I look like my friend who dont take showers for 3 day s or more, I also make weird name every now and then because I be bored.
